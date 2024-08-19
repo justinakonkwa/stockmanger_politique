@@ -44,7 +44,7 @@ By downloading, installing, or using the StockManager App, you agree to be bound
 7.3. Your continued use of the App after the posting of modified Terms and Conditions constitutes your acceptance of the modified terms.
    
 8. Contact Us
-If you have any questions about these Terms and Conditions, please contact us at: info@stockmanagerapp.com.
+If you have any questions about these Terms and Conditions, please contact us at: naarateam2.0@gmail.com
 StockManager App
 Gombe kinshasa
 DRC.
